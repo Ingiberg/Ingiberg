@@ -1,4 +1,4 @@
-- Hi, I’m @Ingiberg
+- Hi, I’m @ingimundur22
 - I’m interested in most machinery, mostly cars 🚗🚜✈️
 - I’m currently studying mechanical engineering at RU 
 - I’m looking to collaborate on ENGX-project 📐⚙️
